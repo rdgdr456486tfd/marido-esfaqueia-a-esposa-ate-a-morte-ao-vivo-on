@@ -3,7 +3,13 @@
 
 Uma mulher de meia idade na vila de Suka Damai, distrito de Sei Bamban, regência de Serdang Bedagai, morreu após ser esfaqueada pelo marido enquanto cantava com sua família.
 
- 
+ 📺📱👉◄◄🔴 https://tinyurl.com/3namhbm4
+
+📺📱👉◄◄🔴 https://tinyurl.com/3namhbm4
+
+📺📱👉◄◄🔴 https://tinyurl.com/3namhbm4
+
+📺📱👉◄◄🔴 https://tinyurl.com/3namhbm4
 
 A vítima, conhecida como Hertalina br Simanjuntak, foi esfaqueada pelo marido durante uma transmissão ao vivo no Facebook. O Chefe da Unidade de Investigação Criminal da Polícia de Sergai, AKP Donny Simatupang, disse que a vítima sofreu 5 facadas. O incidente ocorreu à noite, para ser mais preciso no sábado, 2 de novembro, onde a vítima se divertia no karaokê com a família quando de repente seu marido a esfaqueou pelas costas”, disse ele, domingo.
 
